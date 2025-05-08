@@ -6,7 +6,7 @@
 
 💫 Leo/need / 喜欢雷欧尼
 
-🎹 Tenma Saki & icsk / 推天马咲希和icsk
+🎹 Tenma Saki / 天马咲希厨
 
 🎮 Nanami Chiaki / 弹丸七海厨
 
