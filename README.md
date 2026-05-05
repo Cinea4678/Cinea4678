@@ -6,3 +6,6 @@
 
 🎹 Tenma Saki / 天马咲希厨
 
+---
+
+I'm building full-stack financial applications. Visit on [https://ftai.chat/](https://ftai.chat/).
